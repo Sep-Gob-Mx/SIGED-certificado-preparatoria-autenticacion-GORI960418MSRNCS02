@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GORI960418MSRNCS02
+GORI960418MSRNCS02
